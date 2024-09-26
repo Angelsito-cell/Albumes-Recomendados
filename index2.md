@@ -10,8 +10,8 @@ Escucharse las canciones, no seais malos
 
 ## Agent Orange (Sodom)
 
-- Agent Orange:  (https://www.youtube.com/watch?v=CjP2HZ4-5ps)
-- Ausgebombt: (https://www.youtube.com/watch?v=-qmbiw38o2I)
+- [Agent Orange](https://www.youtube.com/watch?v=CjP2HZ4-5ps)
+  [Ausgebombt](https://www.youtube.com/watch?v=-qmbiw38o2I)
 
 
 
@@ -23,12 +23,12 @@ Escucharse las canciones, no seais malos
 
 ## Iowa (Slipknot)
 
-- Left Behind: https://www.youtube.com/watch?v=D1jQKpse7Yw
- - Disasterpiece: https://www.youtube.com/watch?v=TPSenKymLwk
+- [Left Behind](https://www.youtube.com/watch?v=D1jQKpse7Yw)
+-  [Disasterpiece](https://www.youtube.com/watch?v=TPSenKymLwk)
 
 
 ## DIRT (Alice in Chains)
 
-- Them Bones: https://www.youtube.com/watch?v=zTuD8k3JvxQ
-- Down in a Hole: https://www.youtube.com/watch?v=f8hT3oDDf6c
+- [Them Bones](https://www.youtube.com/watch?v=zTuD8k3JvxQ)
+- [Down in a Hole](https://www.youtube.com/watch?v=f8hT3oDDf6c)
 

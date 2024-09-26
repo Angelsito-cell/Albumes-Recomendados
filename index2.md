@@ -32,6 +32,3 @@ Escucharse las canciones, no seais malos
 - Them Bones: https://www.youtube.com/watch?v=zTuD8k3JvxQ
 - Down in a Hole: https://www.youtube.com/watch?v=f8hT3oDDf6c
 
-
-## Volver al lugar principal
-Por si quereis ir a ver las portadas otra vez

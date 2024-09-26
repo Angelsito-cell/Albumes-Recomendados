@@ -34,5 +34,5 @@ Lanzado en 1992, es simplemente una barbaridad de disco, una maravilla del Grung
 ## 
 ## Aquí podreis escuchar las canciones
 
-Pincha aquí para escuchar todas las canciones recomendadas
+[Pincha aquí](https://angelsito-cell.github.io/Albumes-Recomendados/index2) para escuchar todas las canciones recomendadas
 

@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/4e800cdd-c270-403b-a93e-9301b56f50f4)# Top 5 álbumes random 
+# Top 5 álbumes random 
 
 En vista de que me han mandado una actividad sobre algo de mi elección, voy a dar la vara con mi música. Esta vez son 5 álbumes que me he sacado del Spotify, sin orden o preferencia aparente.  Empecemo: 
 

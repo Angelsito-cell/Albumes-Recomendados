@@ -4,8 +4,8 @@ Escucharse las canciones, no seais malos
 
 ## Bleach (Nirvana) 
 
-- About a Girl: (https://www.youtube.com/watch?v=JIx2H-plXdU)
-- Mr Moustache: (https://www.youtube.com/watch?v=O4322tT9m7k)
+- [About a Girl](https://www.youtube.com/watch?v=JIx2H-plXdU)
+- [Mr Moustache](https://www.youtube.com/watch?v=O4322tT9m7k)
 
 
 ## Agent Orange (Sodom)
